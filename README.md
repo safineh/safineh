@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @safineh
+- 👀 I’m interested in somthing!
+- 🌱 I’m currently learning somthing!
+- 💞️ I’m looking to collaborate on somthing!
